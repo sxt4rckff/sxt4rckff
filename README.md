@@ -1,0 +1,4 @@
+-👋 Hi, I’m @sxt4rckff
+- 👀 I’m interested in learn as many things as possible in this environment
+- 💞️ I’m looking to collaborate In all projects that appear to me.
+- 📫 How to reach me my instagram:@sxt4rck.ff or my email: victor.starck12@gmail.com
